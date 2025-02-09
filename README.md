@@ -8,4 +8,4 @@
 - 🔹 Open to collaboration on game and software projects  
 
 ### Contact  
-📧 Email: your.email@example.com  
+📧 Email: omerfrktur@gmail.com  
